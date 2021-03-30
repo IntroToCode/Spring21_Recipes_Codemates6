@@ -1,6 +1,6 @@
-# Replace with recipe name
+# Super Spectacular Salad
 
-## Servings: 
+## Servings: 5
 
 ## Time to prepare: 40-50 mins
 
