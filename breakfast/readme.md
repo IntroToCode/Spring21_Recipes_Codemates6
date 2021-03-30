@@ -1,6 +1,6 @@
-# Breakfast Burrito
+# Beautiful Breakfast Burrito
 
-## Servings: 4
+## Servings: 5
 
 ## Time to prepare: 30-40 mins 
 
