@@ -2,7 +2,7 @@
 
 ## Servings: 5
 
-## Time to prepare: 30-40 mins 
+## Time to prepare: 25- 35 mins
 
 ## Ingredients:
 1 pound bacon
@@ -15,6 +15,7 @@
 Microwave
 
 ## Steps for preparation:
+
 
 In 12-inch nonstick skillet, heat 2 tablespoons of the oil over medium-high heat. Add frozen hash brown potatoes in even layer; press down lightly. Cook potatoes 7 minutes without moving. Drizzle with remaining 1 tablespoon oil; turn. Cook 6 to 8 minutes longer or until browned on both sides and hot throughout. Transfer to medium bowl; cover with foil to keep warm. Wipe out skillet.
 
