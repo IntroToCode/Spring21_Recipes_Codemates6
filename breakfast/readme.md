@@ -2,7 +2,7 @@
 
 ## Servings: 4
 
-## Time to prepare: 30-40 mins 
+## Time to prepare: 25- 35 mins
 
 ## Ingredients:
 1 pound bacon
