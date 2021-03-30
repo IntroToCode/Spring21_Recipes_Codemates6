@@ -8,8 +8,8 @@
 
 
 ## Equipment needed:
-Frying Pan
-Oven
+Bowl
+
 ## Steps for preparation:
 
 
