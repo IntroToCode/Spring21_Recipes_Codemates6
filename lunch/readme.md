@@ -1,6 +1,6 @@
-# Replace with recipe name
+# Rib fried rice
 
-## Servings: 
+## Servings: 5
 
 ## Time to prepare: 
 
