@@ -12,7 +12,7 @@
 10 (10 inch) flour tortillas
 
 ## Equipment needed:
-
+Microwave
 
 ## Steps for preparation:
 
