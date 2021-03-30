@@ -2,7 +2,7 @@
 
 ## Servings: 4
 
-## Time to prepare: 30 mins
+## Time to prepare: 25- 35 mins
 
 ## Ingredients:
 1 pound bacon
@@ -12,7 +12,7 @@
 10 (10 inch) flour tortillas
 
 ## Equipment needed:
-
+Microwave
 
 ## Steps for preparation:
 
