@@ -8,7 +8,7 @@
 
 
 ## Equipment needed:
-
+Frying Pan
 
 ## Steps for preparation:
 
