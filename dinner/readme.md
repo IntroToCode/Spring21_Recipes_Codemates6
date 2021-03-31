@@ -20,7 +20,7 @@ Once you’ve got your ingredients ready, it’s as simple as slicing and dicing
 
 
 ### Notes:
-
+Pro Tip: Slice a few pieces of bread (sourdough or focaccia), lather in butter, cheese, and a bit of minced garlic. Broil in the oven for just a few minutes and then enjoy! 
 
 
 ### Codemates #
