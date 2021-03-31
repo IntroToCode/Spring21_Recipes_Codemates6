@@ -5,7 +5,7 @@
 ## Time to prepare: 2-3 hours (including time to cook ribs, if using leftover ribs, about 30 minutes for fried rice)
 
 ## Ingredients:
-
+leftover ribs, rice, eggs, snow peas, onion, and sriracha
 
 ## Equipment needed:
 Frying Pan
