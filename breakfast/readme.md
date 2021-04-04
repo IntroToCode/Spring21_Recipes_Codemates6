@@ -29,6 +29,6 @@ To freeze, wrap each burrito in foil. Label 1-gallon resealable freezer plastic 
 
 ### Notes:
 
-
+Pro Tip: Make sure to have some Casa Sanchez salsa / guac on hand or some hot sauce to kick things up a notch! 
 
 ### Codemates #
